@@ -1,1 +1,1 @@
-# tesla.airdrop-giveaway.claim
+# tesla-air-drop-giveaway-claim
